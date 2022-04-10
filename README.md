@@ -2,4 +2,4 @@
 * Nama: Juan Rizky Romeiro
 * Kelas: R1, Semester 4
 * NIM: 200511063
-* Dosen: Freddy Wicaksono, M.Kom
+* Dosen Tercinta: Freddy Wicaksono, M.Kom
